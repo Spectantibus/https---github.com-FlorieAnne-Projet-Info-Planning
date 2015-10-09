@@ -1,1 +1,1 @@
-J'aime les voitures bleues.
+J'aime les pommes.
